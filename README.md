@@ -1,5 +1,5 @@
 
-Hi, I'm Matias Quiroz (💻💖🍕) 
+Hi, I'm Matias (💻💖🍕) 
 
 
 
